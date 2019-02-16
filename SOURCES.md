@@ -1,0 +1,19 @@
+Model "boxing" the labels: 
+
+https://www.flickr.com/photos/sridharan97/46480479941/in/photolist-2dPjBkc-2cqBEWg-2cHnDE3-2dPjz6c-Hd1HeR-2dPjBnX-2dPjBcg-VxvLcj-2dPjBgz-2dPjBtD-2efYDbw-FiQZcy-2cHnEts-2cqBFQv-2dPjxJz-2cqBFcg-2b3Kr5Y-2cHnDLA-2cqBBrF-2cqBBhc-2cqBAYM-2b3KqLS-2b3Kqro-2dPjyRp-2dPjxxx-2dPjxa8-2b3KqT5-22FUvNN-2dPjtWz-CFrUKa-2dPjB2g-23J8vC4-225onzi-QQziva-23J8vPX-2dPjBxM-2cqBzcF-2cHnzsq-2dPjtnD-25e9Mji-2cqBBVr-SeE3fq-2cqBzRM-23LiuU8-V9i1RJ-2coLFRo-E4o8PS-226xyb4-Fk482G-pMMAuv
+
+Celebrities who are being body shamed:
+
+https://www.flickr.com/photos/148945573@N06/38685928802/in/photolist-21WxuQs-8K4VxX-dcsTJ-H3NDFP-YaeHjQ-vvMSu3-Smpb6Q-ZCTG2K-dZot5F-U5eqWC-c4cBj5-7ys86h-YuQRyj-ZCX29X-K7WuZE-YMHH7p-UAFQhE-23SemSQ-i7i6Sw-23Senbf-21Ws1Z7-Xuj36H-bUSUV-29FKuRy-cRtZCw-quYuw8-jHQ4jU-8JAcJU-NBTYh7-jXTDLZ-pm8DYx-e1sJaH-ZExuti-28b3ud4-jHN1Gz-ZTU3TJ-aUVg8R-dvFZfC-DRojtC-UciKC7-dUfHor-iqCokx-jHNvJT-aoU6EJ-ijD5mb-RTEXq3-dUmkiu-dUmmWY-jQA1mg-e1sJxn
+
+https://www.flickr.com/photos/164598414@N05/32982987728/in/photolist-SfAr9d-2cZTEBD-2cZTEyn-2cZTFUP-S4Wwt7-S4Wwv1-SfArgs-JRoVmo-PQy2hQ-2aSM6Gu-2bUddTC-2441cXH-J2SBmX-PQy13q-HBcF2z-Si1HfC-SfAqpC-2cZTEnv-2aA39mF-SfArHu-2cZTEEp-RhQY8c-NdvGNx-2cZTEhF-2bUcXDu-29Ah8Mz-2aSM8V7-2aSM6mu-XHFnLB-2cZTEtH-2cZTE4p-SfAqrb-SfArCj-27Mw7Rq-SfAq7U-X7BDvL-2bYB79e-BYo4dG-23o9QHd-SfArTQ-2cZTEb8-GLvM3T-J1cih5-25oQVpm-Vxebba-27FEnwE-25uPXfU-23o9PgL-VxebtV-Vxe5o8
+
+https://www.flickr.com/photos/46847057@N05/790030231https://www.flickr.com/photos/74944917@N02/20970072772/in/photolist-x4HThe-xNZj57-wYubRb-GzqYKr-xX473Q-xQbVWU-A6Pov2-QEQ9zz-y7hfwe-ANE6St-wC4Xwu-wXM1qx-24QAHcu-EHTe76-xTjJ2s-C3ddR1-xPbZZY-xyy3U1-CA7Cq1-yxykLF-yxq5Nw2/in/photolist-d387CQ-d5gdgS-akEKe5-cmbUbW-bbsEBg-cKmLcE-aahgFu-bZWQ2u-bhiYzx-btr2c5-amv9k6-bbrtpV-d7JwVC-9gDDV6-a1M98Y-b7yND4-bhjciP-d69KJS-cLfpvo-bbt7R2-d4DAUf-aj71aj-9UTDZo-9UQNmF-9UTui3-7vAmvN-29P7jnd-oXuyWY-2ebNamN-2ebN9tW-2egsQCH-2egsT8H-2ebN4rw-KEyE4k-ETf4ns-FNFXWD-FGPLi4-FLpmkJ-FGQaxk-28Y1FY6-KJyec7-dbAYfW-fJ9uKL-7eFtqW-7eG7Uh-npaQAc-pcWCsY-mHT1nZ-h7VD19-yeqAoM
+
+https://www.flickr.com/photos/fashnal/44038303345/in/photolist-2a6vPja-JeauGp-25aFVxq-LrAHW2-29YBnJN-2cdw1or-28pomsL-QmXnTU-288ic77-26b8eu9-28eWHCP-2bAgeRa-27MjUov-2bBwB5v-NYYY9z-24W9B56-28u5jZC-2cCmPh9-2cTiTmX-2buBsSR-QvSNk4-24jLPRS-289HUCu-HY5kvu-23mzyvW-27TPekX-QzDdDu-KHnJCm-Kqh63y-24NKtzj-23tWrjh-287Fi1m-281Xi9R-23SQJfN-28JoTf9-GqnKcx-KyB4zX-2cnHWsH-23iDxKY-FSbGN9-2536Qy9-252L2Mb-24KNgKe-QBDFvx-2b1dfJ1-2co7hdR-25TtiTz-28NAzdp-27wjB4Q-N4ipom
+
+https://www.flickr.com/photos/164598414@N05/46785902442/in/photolist-2ehiYNo-QAAEjB-2aqJBFg-HdcpY6-2bz5PD8-NKV8vY-NVfJ5p-26gnVqW-HB16Zf-21ozFG8-2aFe9EU-23zpnQH-2a7apUZ-2amF1KY-2b712pp-Mm7ggr-Mm7faD-DGiQHD-2djiNhi-2b4F9Mu-2dQdRSe-2cJibQ3-Q53oQV-Q53AfZ-Q53r7i-28aWQuN-MDZEC2-2dZLCRX-28m8751-29HG3Nr-Mm6Gyc-NYmtqf-Mm6GRr-2b6ZZrM-28m8Cmd-Mm6Kmr-2agPd9V-DGhXjr-JpqwHR-SdMLQN-2298M67-DGiW7p-JpqzYZ-Fdrfsm-23m9EPD-Q6xju7-283fHkf-22qfep3-21jJzUw-2aPXWMH
+
+Tape Measurer: Photo by rawpixel on Unsplash 
+
+Body Shaming Comments: https://www.marieclaire.com/celebrity/g20834252/celebrity-body-shaming-responses/?slide=12
