@@ -10,7 +10,7 @@ https://commons.wikimedia.org/wiki/File:Ashley_Graham_at_SI_Swim_City_2016.jpg
 
 https://www.flickr.com/photos/164598414@N05/32982987728/in/photolist-SfAr9d-2cZTEBD-2cZTEyn-2cZTFUP-S4Wwt7-S4Wwv1-SfArgs-JRoVmo-PQy2hQ-2aSM6Gu-2bUddTC-2441cXH-J2SBmX-PQy13q-HBcF2z-Si1HfC-SfAqpC-2cZTEnv-2aA39mF-SfArHu-2cZTEEp-RhQY8c-NdvGNx-2cZTEhF-2bUcXDu-29Ah8Mz-2aSM8V7-2aSM6mu-XHFnLB-2cZTEtH-2cZTE4p-SfAqrb-SfArCj-27Mw7Rq-SfAq7U-X7BDvL-2bYB79e-BYo4dG-23o9QHd-SfArTQ-2cZTEb8-GLvM3T-J1cih5-25oQVpm-Vxebba-27FEnwE-25uPXfU-23o9PgL-VxebtV-Vxe5o8
 
-Edwin  Martinez from The Bronx [CC BY 2.0 (https://creativecommons.org/licenses/by/2.0)], cropped, 
+Serena Williams Edwin  Martinez from The Bronx [CC BY 2.0 (https://creativecommons.org/licenses/by/2.0)], cropped, 
 
 https://commons.wikimedia.org/wiki/File:Serena_Williams_US_Open_2013.jpg
 
