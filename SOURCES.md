@@ -4,16 +4,13 @@ https://www.flickr.com/photos/sridharan97/46480479941/in/photolist-2dPjBkc-2cqBE
 
 Celebrities who are being body shamed:
 
-Ashley Graham Behind The Velvet Rope TV [CC BY 3.0 (https://creativecommons.org/licenses/by/3.0)], cropped, 
+Ashley Graham Sports Illustrated 2016 by Jon Gurinsky for EventPhotosNYC, cropped, 
 
-https://commons.wikimedia.org/wiki/File:Ashley_Graham_at_SI_Swim_City_2016.jpg
+https://www.flickr.com/photos/eventphotosnyc/25004264511/in/photolist-bQeSCK-dPLRKu-bsL2us-r7gcCH-dJGi7a-9KCYks-9KCULs-8QFLyp-pUyBFh-iTSJLx-pUGkcR-5zJcRA-NWFrxw-22oAMgk-bQfhTT-9KCTXC-9KzSxB-9KCXJm-oN6BzZ-pssXe2-E6xoGP-56yok9-bu9mge-56udbz-56ubEg-GyvBTW-FL1hsg-sPeKzn-sPhYXi/ 
 
-https://www.flickr.com/photos/164598414@N05/32982987728/in/photolist-SfAr9d-2cZTEBD-2cZTEyn-2cZTFUP-S4Wwt7-S4Wwv1-SfArgs-JRoVmo-PQy2hQ-2aSM6Gu-2bUddTC-2441cXH-J2SBmX-PQy13q-HBcF2z-Si1HfC-SfAqpC-2cZTEnv-2aA39mF-SfArHu-2cZTEEp-RhQY8c-NdvGNx-2cZTEhF-2bUcXDu-29Ah8Mz-2aSM8V7-2aSM6mu-XHFnLB-2cZTEtH-2cZTE4p-SfAqrb-SfArCj-27Mw7Rq-SfAq7U-X7BDvL-2bYB79e-BYo4dG-23o9QHd-SfArTQ-2cZTEb8-GLvM3T-J1cih5-25oQVpm-Vxebba-27FEnwE-25uPXfU-23o9PgL-VxebtV-Vxe5o8
+Khloe Kardashian by Stuart Isett/Fortune Most Powerful Women, cropped, https://www.flickr.com/photos/fortunempw/31290957666/in/photolist-aBo7rM-7VjbPb-7VfXJg-7VfXgD-7VfWWv-s16emh-rKMRXW-7bgQC6-aswGhJ-PdZtxA-s1TkhU-rLB1f5-rJRndP-rLzRPs-s4biet-s47PTP-s43v1h-rLB1fL-s4biir-Sv6FRz-btDK21-ToMEt6-PF59rY-PF594o-PF5ard-PJhMLp-PaH9fq-NuVFkV-PaGJnL-PJhJYk-PJhJpV-NuVSir-PF56hm-PvyebN-PF5N5o-Pvy61E-NtBDYj-PJhHVP-NuVpwv-NuVAkp-pTpLrZ-TH8maG-Pvykmy-PvyapQ-NtBR69-PJhx5k-PF5ky7-PJhKr4-PaGLpm-dSzsxs
 
-Serena Williams Edwin  Martinez from The Bronx [CC BY 2.0 (https://creativecommons.org/licenses/by/2.0)], cropped, 
-
-https://commons.wikimedia.org/wiki/File:Serena_Williams_US_Open_2013.jpg
-
+Serena Williams by Mirsasha, cropped, https://www.flickr.com/photos/mirsasha/8014224039/in/photolist-ddbZAx-eGk3dF-cpUQKL-hWD6iy-ajHt8v-ajHx4Z-d35ABq-ajHsMi-ajHwTv-ajLgAN-a87CPz-8MQ53y-ajLfGS-ajLfVf-iSbPaZ-8Q8wsK-d69JdA-d35De7-fcvr8c-d69KJS-9UTDZo-9UQNmF-e4Ueuf-9UTCVQ-pv4cPp-pMfLfc-pPiCze-fJ9uKL-eipsJ6-5VM2Td-exe2mV-exeq6e-exhMAw-exhWmN-exhKAh-9UTui3-9UTDeY-ETf4ns-FNFXWD-FGPLi4-ETqX7D-FLpmkJ-FGQaxk-c7ZrBY-c7Yas9-c81b79-ETs1He-r1kYqG-rXm7qF-TsaMgQ
 
 https://www.flickr.com/photos/fashnal/44038303345/in/photolist-2a6vPja-JeauGp-25aFVxq-LrAHW2-29YBnJN-2cdw1or-28pomsL-QmXnTU-288ic77-26b8eu9-28eWHCP-2bAgeRa-27MjUov-2bBwB5v-NYYY9z-24W9B56-28u5jZC-2cCmPh9-2cTiTmX-2buBsSR-QvSNk4-24jLPRS-289HUCu-HY5kvu-23mzyvW-27TPekX-QzDdDu-KHnJCm-Kqh63y-24NKtzj-23tWrjh-287Fi1m-281Xi9R-23SQJfN-28JoTf9-GqnKcx-KyB4zX-2cnHWsH-23iDxKY-FSbGN9-2536Qy9-252L2Mb-24KNgKe-QBDFvx-2b1dfJ1-2co7hdR-25TtiTz-28NAzdp-27wjB4Q-N4ipom
 
