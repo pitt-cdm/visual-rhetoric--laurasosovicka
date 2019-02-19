@@ -10,7 +10,10 @@ https://commons.wikimedia.org/wiki/File:Ashley_Graham_at_SI_Swim_City_2016.jpg
 
 https://www.flickr.com/photos/164598414@N05/32982987728/in/photolist-SfAr9d-2cZTEBD-2cZTEyn-2cZTFUP-S4Wwt7-S4Wwv1-SfArgs-JRoVmo-PQy2hQ-2aSM6Gu-2bUddTC-2441cXH-J2SBmX-PQy13q-HBcF2z-Si1HfC-SfAqpC-2cZTEnv-2aA39mF-SfArHu-2cZTEEp-RhQY8c-NdvGNx-2cZTEhF-2bUcXDu-29Ah8Mz-2aSM8V7-2aSM6mu-XHFnLB-2cZTEtH-2cZTE4p-SfAqrb-SfArCj-27Mw7Rq-SfAq7U-X7BDvL-2bYB79e-BYo4dG-23o9QHd-SfArTQ-2cZTEb8-GLvM3T-J1cih5-25oQVpm-Vxebba-27FEnwE-25uPXfU-23o9PgL-VxebtV-Vxe5o8
 
-https://www.flickr.com/photos/46847057@N05/7900302312/in/photolist-d387CQ-d5gdgS-5Zuem4-cmbUbW-bbsEBg-cKmLcE-aahgFu-bhiYzx-btr2c5-amv9k6-bbrtpV-d7JwVC-9gDDV6-bbrNkv-bbt4Uz-a1M98Y-bbsLqp-b7yND4-bhjciP-d69KJS-cLfpvo-bbt7R2-d4DAUf-aj71aj-pxVGQS-9UTDZo-9UQNmF-9UTui3-7vAmvN-8b1BcN-9WnFXw-c2g9ff-eZAJ9z-55yx4G-adJXbn-eNzHgo-cLfpMC-9WjRbk-d4DxXW-fMyr2H-akBWCX-eJ6Ju6-eMqcZg-eJbVmj-eJ5SPv-cPaYXS-eJ62uF-cVFhCJ-eJbWqJ-fMGW5C
+Edwin  Martinez from The Bronx [CC BY 2.0 (https://creativecommons.org/licenses/by/2.0)], cropped, 
+
+https://commons.wikimedia.org/wiki/File:Serena_Williams_US_Open_2013.jpg
+
 
 https://www.flickr.com/photos/fashnal/44038303345/in/photolist-2a6vPja-JeauGp-25aFVxq-LrAHW2-29YBnJN-2cdw1or-28pomsL-QmXnTU-288ic77-26b8eu9-28eWHCP-2bAgeRa-27MjUov-2bBwB5v-NYYY9z-24W9B56-28u5jZC-2cCmPh9-2cTiTmX-2buBsSR-QvSNk4-24jLPRS-289HUCu-HY5kvu-23mzyvW-27TPekX-QzDdDu-KHnJCm-Kqh63y-24NKtzj-23tWrjh-287Fi1m-281Xi9R-23SQJfN-28JoTf9-GqnKcx-KyB4zX-2cnHWsH-23iDxKY-FSbGN9-2536Qy9-252L2Mb-24KNgKe-QBDFvx-2b1dfJ1-2co7hdR-25TtiTz-28NAzdp-27wjB4Q-N4ipom
 
