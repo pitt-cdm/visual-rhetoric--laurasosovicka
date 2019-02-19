@@ -4,7 +4,9 @@ https://www.flickr.com/photos/sridharan97/46480479941/in/photolist-2dPjBkc-2cqBE
 
 Celebrities who are being body shamed:
 
-https://www.flickr.com/photos/148945573@N06/38685928802/in/photolist-21WxuQs-8K4VxX-dcsTJ-H3NDFP-YaeHjQ-vvMSu3-Smpb6Q-ZCTG2K-dZot5F-U5eqWC-c4cBj5-7ys86h-YuQRyj-ZCX29X-K7WuZE-YMHH7p-UAFQhE-23SemSQ-i7i6Sw-23Senbf-21Ws1Z7-Xuj36H-bUSUV-29FKuRy-cRtZCw-quYuw8-jHQ4jU-8JAcJU-NBTYh7-jXTDLZ-pm8DYx-e1sJaH-ZExuti-28b3ud4-jHN1Gz-ZTU3TJ-aUVg8R-dvFZfC-DRojtC-UciKC7-dUfHor-iqCokx-jHNvJT-aoU6EJ-ijD5mb-RTEXq3-dUmkiu-dUmmWY-jQA1mg-e1sJxn
+Ashley Graham Behind The Velvet Rope TV [CC BY 3.0 (https://creativecommons.org/licenses/by/3.0)], cropped, 
+
+https://commons.wikimedia.org/wiki/File:Ashley_Graham_at_SI_Swim_City_2016.jpg
 
 https://www.flickr.com/photos/164598414@N05/32982987728/in/photolist-SfAr9d-2cZTEBD-2cZTEyn-2cZTFUP-S4Wwt7-S4Wwv1-SfArgs-JRoVmo-PQy2hQ-2aSM6Gu-2bUddTC-2441cXH-J2SBmX-PQy13q-HBcF2z-Si1HfC-SfAqpC-2cZTEnv-2aA39mF-SfArHu-2cZTEEp-RhQY8c-NdvGNx-2cZTEhF-2bUcXDu-29Ah8Mz-2aSM8V7-2aSM6mu-XHFnLB-2cZTEtH-2cZTE4p-SfAqrb-SfArCj-27Mw7Rq-SfAq7U-X7BDvL-2bYB79e-BYo4dG-23o9QHd-SfArTQ-2cZTEb8-GLvM3T-J1cih5-25oQVpm-Vxebba-27FEnwE-25uPXfU-23o9PgL-VxebtV-Vxe5o8
 
