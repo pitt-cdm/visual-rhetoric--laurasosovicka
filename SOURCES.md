@@ -4,6 +4,8 @@ https://www.flickr.com/photos/sridharan97/46480479941/in/photolist-2dPjBkc-2cqBE
 
 Celebrities who are being body shamed:
 
+Demi Lovato by Ralph Arvesen, cropped, https://www.flickr.com/photos/rarvesen/29062199514/in/photolist-LhgtcR-Lh8npq-LhgsSx-MbkCnh-qk7uDK-nhTtZ8-nzoDZ1-nxkoBh-nxkoTE-nz63tn-nxkoK3-nsUkvr-nsUkdx-nbGgkF-nuXGv6-niFQ9H-niprWf-niFQSr-niJ54S-nksjsR-nksjtc-nksiLk-nipy18-nipr6Y-ngDpDN-pEL8jH-bAbkso-bP5ZrV-bAbkr9-bAbkkE-dfs7kP-dfs7qH-dfs6mP-dfs93N-MdCww1-N8eKas-MdBpGv-N8eKuq-MdBqov-MdBoJi-73Kk6Q-6KsEaw-JKNZPj-8FnQ6g-55aUT6-N8eJR1-N8eJfG-dC7pP2-8m4eHQ-73KRmJ/
+
 Ashley Graham Sports Illustrated 2016 by Jon Gurinsky for EventPhotosNYC, cropped, 
 
 https://www.flickr.com/photos/eventphotosnyc/25004264511/in/photolist-bQeSCK-dPLRKu-bsL2us-r7gcCH-dJGi7a-9KCYks-9KCULs-8QFLyp-pUyBFh-iTSJLx-pUGkcR-5zJcRA-NWFrxw-22oAMgk-bQfhTT-9KCTXC-9KzSxB-9KCXJm-oN6BzZ-pssXe2-E6xoGP-56yok9-bu9mge-56udbz-56ubEg-GyvBTW-FL1hsg-sPeKzn-sPhYXi/ 
