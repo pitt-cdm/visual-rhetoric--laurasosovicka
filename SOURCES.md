@@ -1,8 +1,8 @@
-Model "boxing" the labels: 
+Cover Model: 
 
-https://www.flickr.com/photos/sridharan97/46480479941/in/photolist-2dPjBkc-2cqBEWg-2cHnDE3-2dPjz6c-Hd1HeR-2dPjBnX-2dPjBcg-VxvLcj-2dPjBgz-2dPjBtD-2efYDbw-FiQZcy-2cHnEts-2cqBFQv-2dPjxJz-2cqBFcg-2b3Kr5Y-2cHnDLA-2cqBBrF-2cqBBhc-2cqBAYM-2b3KqLS-2b3Kqro-2dPjyRp-2dPjxxx-2dPjxa8-2b3KqT5-22FUvNN-2dPjtWz-CFrUKa-2dPjB2g-23J8vC4-225onzi-QQziva-23J8vPX-2dPjBxM-2cqBzcF-2cHnzsq-2dPjtnD-25e9Mji-2cqBBVr-SeE3fq-2cqBzRM-23LiuU8-V9i1RJ-2coLFRo-E4o8PS-226xyb4-Fk482G-pMMAuv
+Gigi Hadid by Yzapoo, cropped, https://www.flickr.com/photos/7715511@N06/39175867455/in/photolist-x16Z1r-w3x5Kb-2d9cFxH-x16nvt-22DoBKu-2aHeJYm-21F63N7-2aHeKch-293JPSQ-2aHeK7s-2aHeK15-24qXFQv-FVi211-22YrP8d-2aHeJUJ-2bJJYBj-24qXG9B-22YrP6j-24qXFUD-22FQywB-22YrP9f-22FQyzn-24jCzo9-JjfHeC-RtV4jB-tB5V91-sWDRDC-sWSRzH-27UfKCJ-26fbq1N-28Vi7hE-Pp9ULs-287eBkw-Wv6PZo-NTK4vh-LS264G-Ppfmvd-27UfKA9-287evPS
 
-Celebrities who are being body shamed:
+Celebrities being body shamed:
 
 Emma Stone by Gage Skidmore, cropped, https://www.flickr.com/photos/gageskidmore/6855553804
 
@@ -16,9 +16,7 @@ Khloe Kardashian by Stuart Isett/Fortune Most Powerful Women, cropped, https://w
 
 Serena Williams by Mirsasha, cropped, https://www.flickr.com/photos/mirsasha/8014224039/in/photolist-ddbZAx-eGk3dF-cpUQKL-hWD6iy-ajHt8v-ajHx4Z-d35ABq-ajHsMi-ajHwTv-ajLgAN-a87CPz-8MQ53y-ajLfGS-ajLfVf-iSbPaZ-8Q8wsK-d69JdA-d35De7-fcvr8c-d69KJS-9UTDZo-9UQNmF-e4Ueuf-9UTCVQ-pv4cPp-pMfLfc-pPiCze-fJ9uKL-eipsJ6-5VM2Td-exe2mV-exeq6e-exhMAw-exhWmN-exhKAh-9UTui3-9UTDeY-ETf4ns-FNFXWD-FGPLi4-ETqX7D-FLpmkJ-FGQaxk-c7ZrBY-c7Yas9-c81b79-ETs1He-r1kYqG-rXm7qF-TsaMgQ
 
-Jennifer Lawrence & Amy Schumer, cropped, https://www.flickr.com/photos/fashnal/44038303345/in/photolist-2a6vPja-JeauGp-25aFVxq-LrAHW2-29YBnJN-2cdw1or-28pomsL-QmXnTU-288ic77-26b8eu9-28eWHCP-2bAgeRa-27MjUov-2bBwB5v-NYYY9z-24W9B56-28u5jZC-2cCmPh9-2cTiTmX-2buBsSR-QvSNk4-24jLPRS-289HUCu-HY5kvu-23mzyvW-27TPekX-QzDdDu-KHnJCm-Kqh63y-24NKtzj-23tWrjh-287Fi1m-281Xi9R-23SQJfN-28JoTf9-GqnKcx-KyB4zX-2cnHWsH-23iDxKY-FSbGN9-2536Qy9-252L2Mb-24KNgKe-QBDFvx-2b1dfJ1-2co7hdR-25TtiTz-28NAzdp-27wjB4Q-N4ipom
-
-Emma Stone by Gage Skidmore, cropped, https://www.flickr.com/photos/gageskidmore/6855553804
+Amy Schumer by Penn State, cropped, https://www.flickr.com/photos/pennstatelive/24573751833/in/photolist-DruUhr-Dgbpnz-CSab1u-CSa7jw-DPEEsc-QhWxva-DDfsz9-zGWF1g-qfboAJ-2cvJsZo-u4qKnF-u4hDv5-M58ouG-23VbENf-23VbEFm-22Thbfy-23XWXti-23XWXR2-23XWXuv-23VbEDN-HTrfiX-HzoSGS-H54RwR-H4XYU9-H4Y7Ds-HR7qGy-HTr5BT-HZR4v4-H4Y2VQ-HzoTFq-HZRbG8-H54Lra-HZRhVk-HTr7oZ-H4XVFL-HPbF6h-H33Khw-HxsGN7-H38qVR-H38kEk-H33PCW-G15e5e-F5CQnC-G15syt-F5CMR5-FXMmLU-F5CGyG-beWtND-D2PB1z-CCVrY6
 
 Tape Measurer: Photo by rawpixel on Unsplash <a style="background-color:black;color:white;text-decoration:none;padding:4px 6px;font-family:-apple-system, BlinkMacSystemFont, &quot;San Francisco&quot;, &quot;Helvetica Neue&quot;, Helvetica, Ubuntu, Roboto, Noto, &quot;Segoe UI&quot;, Arial, sans-serif;font-size:12px;font-weight:bold;line-height:1.2;display:inline-block;border-radius:3px" href="https://unsplash.com/@rawpixel?utm_medium=referral&amp;utm_campaign=photographer-credit&amp;utm_content=creditBadge" target="_blank" rel="noopener noreferrer" title="Download free do whatever you want high-resolution photos from rawpixel"><span style="display:inline-block;padding:2px 3px"><svg xmlns="http://www.w3.org/2000/svg" style="height:12px;width:auto;position:relative;vertical-align:middle;top:-2px;fill:white" viewBox="0 0 32 32"><title>unsplash-logo</title><path d="M10 9V0h12v9H10zm12 5h10v18H0V14h10v9h12v-9z"></path></svg></span><span style="display:inline-block;padding:2px 3px">rawpixel</span></a> 
 
