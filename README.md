@@ -16,14 +16,16 @@ recognizing diversity and body positivity. People nowadays find using the media 
 
 they are saving face by hiding behind a screen. Along with the celebrities you see are insults that internet 
 
-users said to them. I made Gigi Hadid the main focus because she has been body shamed the naysayers and their opinions. 
+users said to them. I made Gigi Hadid the main focus because she has been body shamed the naysayers and 
 
- You also see a tape measurer wrapped around the celebrities, as that is what  people use to measure themselves. 
- 
-The theme of this cover is about boxing and getting rid of both the critics and body shaming. I used terms such 
+their opinions. You also see a tape measurer wrapped around the celebrities, as that is what people use 
 
-as "punching" and "knockout" to highlight how forceful these women must be to put the critics in their place. 
+to measure themselves. The theme of this cover is about boxing and getting rid of both the critics and body shaming. 
 
-I also put a call-to-action hoping readers feel inclined to recognize the ongoing issue, join the celebrities 
+I used terms such as "punching" and "knockout" to highlight how forceful these women must be to put the critics 
 
-and put an end to body shaming. It has been in existence far too long and needs people to advocate against it. 
+in their place. I also put a call-to-action hoping readers feel inclined to recognize the ongoing issue, join the 
+
+celebrities and put a stop to body shaming. Its existence is alive today and has been for far too long. Even if you
+
+never experienced body shaming, others have and it's important to stand by them and fight for what is right.
