@@ -1,3 +1,5 @@
+EveryBODY is Unique
+
 This magazine cover is promoting anti-body shaming. The problem of body shaming continues is still around and needs
 
 to disappear. Celebrities in the media continue to face the wrath of critics who have negative things to say about
